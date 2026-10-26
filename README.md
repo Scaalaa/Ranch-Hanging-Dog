@@ -1,1 +1,0 @@
-# Ranch-Hanging-Dog
